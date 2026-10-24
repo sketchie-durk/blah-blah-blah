@@ -1,0 +1,1 @@
+The Squiggle Hypothesis posits that the universe is actually a series of very complex doodles drawn by a bored cosmic entity. We prove this by observing that most cloud formations look like poodles.

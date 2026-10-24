@@ -1,0 +1,1 @@
+An empirical study on the velocity of socks in a dryer. Our findings suggest that socks are actually 4-dimensional beings that exit our reality via the lint filter.

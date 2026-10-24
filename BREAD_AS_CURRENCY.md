@@ -1,0 +1,1 @@
+A proposal to return to the 'Sourdough Standard', where the value of a currency is tied to the rise-time of a loaf of rye. This prevents inflation because bread eventually molds.
