@@ -1,0 +1,1 @@
+Napoleon didn't actually lose at Waterloo; he just found a really great bakery in the opposite direction and decided to stay for the croissants.
