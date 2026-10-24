@@ -1,0 +1,1 @@
+The Emu War was not a failure of the Australian military, but a successful diplomatic negotiation where the emus were granted sovereign citizenship in exchange for not eating the fences.

@@ -1,0 +1,1 @@
+Typos are not human errors, but messages from the CPU attempting to communicate in a language of missing vowels and misplaced semicolons.

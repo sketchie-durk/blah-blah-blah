@@ -1,0 +1,1 @@
+Data that is deleted from a hard drive doesn't vanish; it goes to Cache Purgatory, where it spends eternity arguing with old versions of Internet Explorer.

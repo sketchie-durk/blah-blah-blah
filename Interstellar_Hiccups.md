@@ -1,0 +1,1 @@
+The expansion of the universe is caused by a single, massive, galactic-scale hiccup that occurred 13.8 billion years ago. We are currently in the 'after-echo' phase.
