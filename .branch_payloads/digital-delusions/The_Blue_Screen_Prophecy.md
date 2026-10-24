@@ -1,0 +1,1 @@
+The Blue Screen of Death is actually a divine revelation. If you read the hex codes in the correct order, they predict the exact date your toaster will become sentient.

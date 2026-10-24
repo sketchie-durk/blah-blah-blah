@@ -1,0 +1,1 @@
+A recipe for spaghetti that, when cooked in a Möbius strip pan, creates a pasta strand of infinite length, effectively solving world hunger and causing a pasta-based singularity.
