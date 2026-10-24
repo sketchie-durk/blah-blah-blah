@@ -1,0 +1,1 @@
+Dark matter is actually just a cosmic waiting room for particles that forgot where they were going. We hypothesize that the 'void' is simply the universe's way of keeping the laundry room clean.

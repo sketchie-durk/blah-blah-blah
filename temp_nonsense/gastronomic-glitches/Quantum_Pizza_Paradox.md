@@ -1,0 +1,1 @@
+A pizza that is both pineapple and pepperoni until the box is opened. The act of eating it collapses the flavor-wave into a state of culinary regret.

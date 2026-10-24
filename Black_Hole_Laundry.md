@@ -1,0 +1,1 @@
+Black holes are not singularities; they are cosmic vacuum cleaners that have finally reached capacity and are now just spitting out random socks from the 1990s.
